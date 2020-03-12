@@ -1,0 +1,1 @@
+Fuck this program. I probably made it more complicated than it had to be but it fucking works and that's all I care about lol. 
